@@ -158,7 +158,34 @@ PS:我真的是就事论事，不是这剧里任何人的粉丝，我希望以�
 到现在为止，今年能上星的古偶现偶基本全崩了，不是崩在演员上，就是崩在剧情上，不然崩在设定上，或者崩在逻辑上，目前为止我全剧追完的也就《香蜜》了 (网剧另算)
   
   
-**被辱骂截图**  
+**关大被辱骂截图**  
 
 ![辱骂关心则乱.jpg]({{site.baseurl}}/辱骂关心则乱.jpg)
 ![辱骂关心则乱1.jpg]({{site.baseurl}}/辱骂关心则乱1.jpg)
+![辱骂关心则乱2.jpg]({{site.baseurl}}/辱骂关心则乱2.jpg)
+![辱骂关心则乱3.jpg]({{site.baseurl}}/辱骂关心则乱3.jpg)
+![辱骂关心则乱4.jpg]({{site.baseurl}}/辱骂关心则乱4.jpg)
+![辱骂关心则乱5.png]({{site.baseurl}}/辱骂关心则乱5.png)
+![辱骂关心则乱6.png]({{site.baseurl}}/辱骂关心则乱6.png)
+![辱骂关心则乱16.jpg]({{site.baseurl}}/辱骂关心则乱16.jpg)
+![辱骂关心则乱15.jpg]({{site.baseurl}}/辱骂关心则乱15.jpg)
+![辱骂关心则乱14.jpg]({{site.baseurl}}/辱骂关心则乱14.jpg)
+![辱骂关心则乱13.jpg]({{site.baseurl}}/辱骂关心则乱13.jpg)
+![辱骂关心则乱12.jpg]({{site.baseurl}}/辱骂关心则乱12.jpg)
+![辱骂关心则乱11.jpg]({{site.baseurl}}/辱骂关心则乱11.jpg)
+![辱骂关心则乱10.jpg]({{site.baseurl}}/辱骂关心则乱10.jpg)
+![辱骂关心则乱9.jpg]({{site.baseurl}}/辱骂关心则乱9.jpg)
+![辱骂关心则乱7.jpg]({{site.baseurl}}/辱骂关心则乱7.jpg)
+  
+**关大退博事件**
+
+![关心则乱退博6.jpg]({{site.baseurl}}/关心则乱退博6.jpg)
+![关心则乱退博.jpg]({{site.baseurl}}/关心则乱退博.jpg)
+![关心则乱退博1.jpg]({{site.baseurl}}/关心则乱退博1.jpg)
+![关心则乱退博3.jpg]({{site.baseurl}}/关心则乱退博3.jpg)
+![关心则乱退博4.jpg]({{site.baseurl}}/关心则乱退博4.jpg)
+![关心则乱退博5.jpg]({{site.baseurl}}/关心则乱退博5.jpg)
+
+***  
+  
+### 408楼/后援会集资买假香水  
