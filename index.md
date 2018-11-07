@@ -163,18 +163,11 @@ PS:我真的是就事论事，不是这剧里任何人的粉丝，我希望以�
 
 ![合并-辱骂关心则乱.jpg]({{site.baseurl}}/合并-辱骂关心则乱.jpg)
  
-
 ***    
   
 * ## 9-7 / 关大退博
 
-
-![关心则乱退博6.jpg]({{site.baseurl}}/关心则乱退博6.jpg)
-![关心则乱退博.jpg]({{site.baseurl}}/关心则乱退博.jpg)
-![关心则乱退博1.jpg]({{site.baseurl}}/关心则乱退博1.jpg)
-![关心则乱退博3.jpg]({{site.baseurl}}/关心则乱退博3.jpg)
-![关心则乱退博4.jpg]({{site.baseurl}}/关心则乱退博4.jpg)
-![关心则乱退博5.jpg]({{site.baseurl}}/关心则乱退博5.jpg)  
+![合并-关心则乱退博.jpg]({{site.baseurl}}/合并-关心则乱退博.jpg)
 
 
 ***  
