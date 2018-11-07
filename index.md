@@ -183,12 +183,12 @@ PS:我真的是就事论事，不是这剧里任何人的粉丝，我希望以�
   此时延禧攻略一枝独秀，香蜜热度提不上来，又有“限流”一说  
   
 ![合并-限流.jpg]({{site.baseurl}}/合并-限流.jpg)
-[扒香蜜限流帖](https://movie.douban.com/subject/26920281/discussion/615717272/)
+[扒香蜜限流原帖](https://movie.douban.com/subject/26920281/discussion/615717272/)
  
 *** 
   
 * ## 8-8 / 杨紫发动朋友圈宣传香蜜  
-  此为香蜜第一次出圈，除了杨紫其余人都是nbcs的状态
+  此为香蜜第一次出圈
   
 ![合并-朋友圈.jpg]({{site.baseurl}}/合并-朋友圈.jpg)
 
