@@ -161,26 +161,8 @@ PS:我真的是就事论事，不是这剧里任何人的粉丝，我希望以�
   
 * ## 9-5之后 / 关大被邓伦粉（伪装剧粉）辱骂
 
-![辱骂关心则乱.jpg]({{site.baseurl}}/辱骂关心则乱.jpg)  
-![辱骂关心则乱1.jpg]({{site.baseurl}}/辱骂关心则乱1.jpg)
-![辱骂关心则乱2.jpg]({{site.baseurl}}/辱骂关心则乱2.jpg)
-![辱骂关心则乱3.jpg]({{site.baseurl}}/辱骂关心则乱3.jpg)  
-
-![辱骂关心则乱4.jpg]({{site.baseurl}}/辱骂关心则乱4.jpg)  
-
-![辱骂关心则乱5.png]({{site.baseurl}}/辱骂关心则乱5.png)  
-
-![辱骂关心则乱6.png]({{site.baseurl}}/辱骂关心则乱6.png)  
-
-![辱骂关心则乱16.jpg]({{site.baseurl}}/辱骂关心则乱16.jpg)
-![辱骂关心则乱15.jpg]({{site.baseurl}}/辱骂关心则乱15.jpg)
-![辱骂关心则乱14.jpg]({{site.baseurl}}/辱骂关心则乱14.jpg)
-![辱骂关心则乱13.jpg]({{site.baseurl}}/辱骂关心则乱13.jpg)
-![辱骂关心则乱12.jpg]({{site.baseurl}}/辱骂关心则乱12.jpg)
-![辱骂关心则乱11.jpg]({{site.baseurl}}/辱骂关心则乱11.jpg)
-![辱骂关心则乱10.jpg]({{site.baseurl}}/辱骂关心则乱10.jpg)
-![辱骂关心则乱9.jpg]({{site.baseurl}}/辱骂关心则乱9.jpg)
-![辱骂关心则乱7.jpg]({{site.baseurl}}/辱骂关心则乱7.jpg)  
+![合并-辱骂关心则乱.jpg]({{site.baseurl}}/合并-辱骂关心则乱.jpg)
+ 
 
 ***    
   
